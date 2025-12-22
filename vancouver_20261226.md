@@ -8,6 +8,7 @@ Vancouver in December is magical, filled with holiday lights and mountain snow, 
 - **Morning:** Bundle up for Stanley Park. While the Seawall might be breezy, the *Bright Nights* Christmas Train is a must-see. If it's raining heavily, spend your morning inside the Vancouver Aquarium.
 - **Afternoon:** Take the Aquabus to Granville Island—perfect for hiding from the rain. Explore the Net Loft for unique holiday gifts and grab a hot bowl of seafood chowder at the Public Market.
 - **Evening:** Visit the Vancouver Christmas Market at Jack Poole Plaza. Enjoy German glühwein (mulled wine), bratwurst, and the artisan carousel.
+- **Optional evening:** If you prefer a garden stroll, visit the VanDusen Festival of Lights—over a million lights and a flat, easy walk; it’s a great family-friendly alternative.
 
 ### Day 2: Winter Wonderland
 - **Morning:** Head to North Vancouver for *Canyon Lights* at Capilano Suspension Bridge. In December the park is decorated with hundreds of thousands of lights. Tip: go early or late afternoon to see dusk turn into night.
@@ -18,6 +19,7 @@ Vancouver in December is magical, filled with holiday lights and mountain snow, 
 - **Morning:** Visit the Museum of Anthropology (MOA) or the Vancouver Art Gallery to stay dry while soaking in world-class art.
 - **Afternoon:** Explore Main Street or the West End. Stop into ramen shops like **Danbo** or **Maruhachi** for a steaming bowl of noodles—the ultimate Vancouver winter tradition.
 - **Evening:** Visit Queen Elizabeth Park. The Bloedel Conservatory is a tropical indoor dome that stays warm year-round—perfect for a mini tropical escape from a grey December day.
+- **Optional evening:** After museums or galleries, consider skating at the Robson Square Ice Rink in downtown—rentals are available and it’s an easy, central evening option.
 
 ### Day 4: Mountains & Scenic Day Trip
 - **Morning:** Drive the Sea-to-Sky Highway toward Squamish. Stop at Shannon Falls and take the Sea to Sky Gondola for short hikes and panoramic views—winter mornings are best for clearer roads and views.
@@ -28,7 +30,7 @@ Vancouver in December is magical, filled with holiday lights and mountain snow, 
 
 ---
 
-## II. Top Winter Attractions
+## II. Attractions
 - **Canyon Lights (Capilano):** A seasonal transformation of the suspension bridge park—one of the most spectacular holiday light displays in the world.
 - **Grouse Mountain: Peak of Christmas:** Winter ski resort vibes, mountaintop ice skating and sleigh rides—great even for non-skiers.
 - **VanDusen Festival of Lights:** Over a million lights in the botanical garden; a flat, easy walk and very popular with locals.
