@@ -1,4 +1,4 @@
-# Vancouver, BC: The Winter Edition Travel Guide
+# Vancouver, BC
 
 ### Vancouver
 
